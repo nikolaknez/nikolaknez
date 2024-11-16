@@ -1,4 +1,4 @@
-## Hi there 👋
+## Why Use Four Apps When One Does It All? Jobs, Tasks, Invoices & Clients in One Simplicity-Obsessed App.
 ![promo3 005final](https://github.com/user-attachments/assets/9cf3d0f5-b009-4653-b7a5-3c463757088f)
 
 <!--

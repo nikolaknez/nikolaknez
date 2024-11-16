@@ -1,6 +1,8 @@
 ## Why Use Four Apps When One Does It All? Jobs, Tasks, Invoices & Clients in One Simplicity-Obsessed App.
 ![promo3 005final](https://github.com/user-attachments/assets/9cf3d0f5-b009-4653-b7a5-3c463757088f)
 
+[Try Free on App Store:](https://apple.co/3O08aHa)
+
 <!--
 **nikolaknez/nikolaknez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

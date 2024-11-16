@@ -1,4 +1,5 @@
 ## Hi there 👋
+![promo3 005final](https://github.com/user-attachments/assets/9cf3d0f5-b009-4653-b7a5-3c463757088f)
 
 <!--
 **nikolaknez/nikolaknez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
